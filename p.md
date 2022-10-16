@@ -1,3 +1,0 @@
-**PALADIUM REPERTORY**
-
-+ no public
